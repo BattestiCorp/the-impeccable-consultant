@@ -1,1 +1,1 @@
-![The Impeccable Consultant](consultant-framework-art.png)
+![The Impeccable Consultant](consultant-framework-art-1.png)
